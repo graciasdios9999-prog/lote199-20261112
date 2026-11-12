@@ -1,4 +1,6 @@
-# Lote 198 — 2026-11-12
+# Lote 199 — 2026-11-12
+
+El nombre lote198-20261112 ya existía con otros temas (olinguito, óbolo, paratiroides). Este lote es otro.
 
 MP4 directos. No publicados en Buffer.
 
